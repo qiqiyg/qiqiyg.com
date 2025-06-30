@@ -1,4 +1,4 @@
-# official qiqiyg.com WhatsAPP: 8615160248940
+# Official qiqiyg.com WhatsAPP: 8615160248940
 Fashion designer handbags, shoes, clothes, watches, glasses, accessories 
 Home: www.Wholesale.Pub
 Fashion clothing and designer brand apparels from trusted wholesalers of dresses, skirts, shirts, jeans, lingerie, men's apparel, women's apparel and more. 
